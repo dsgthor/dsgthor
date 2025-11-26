@@ -1,4 +1,4 @@
-# 🛡️ Dheelep Sai Gupthaa (`dsgthor`)
+# 🛡️ N Dheelep Sai Gupthaa (`dsgthor`)
 
 <div align="center">
 
